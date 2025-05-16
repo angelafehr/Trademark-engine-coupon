@@ -1,6 +1,6 @@
 # Trademark Engine Coupon & Promo Codes 2025: Get 50% Discount
 
-Protect your brand identity with a trademark and save while protecting your brand by using the [**Trademark Engine promo](https://www.trademarkengine.com/https://www.trademarkengine.com/) code**.
+Protect your brand identity with a trademark and save while protecting your brand by using the [**Trademark Engine promo**](https://www.trademarkengine.com/https://www.trademarkengine.com/) code.
 
 Get a significant up to **50% discount** on your trademark filing, making it easier than ever with Trademark Engine, which **simplifies the trademark registration process** with the United States Patent and Trademark Office (USPTO) for you.
 
